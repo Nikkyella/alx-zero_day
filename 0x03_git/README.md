@@ -1,1 +1,1 @@
-life_is_beautiful
+life is beautiful
