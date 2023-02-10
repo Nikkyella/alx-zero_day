@@ -1,1 +1,1 @@
-my first readme
+life is beautiful
